@@ -1,4 +1,4 @@
-### Hi there 👋
+### In love with data, finance and one girl
 
 <!--
 **Stivy101/Stivy101** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
